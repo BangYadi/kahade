@@ -1,2 +1,0 @@
-# kahade
-blatukpak
